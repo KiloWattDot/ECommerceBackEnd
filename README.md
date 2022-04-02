@@ -39,7 +39,8 @@
   
   ## Questions
   * If you have any questions about the repo, open an isse or contact: github.com/KiloWattDot
-  * Email to reach us directly: Dot.Gilchrist95@gmail.com
+  * Email to reachxz
+  us directly: Dot.Gilchrist95@gmail.com
 
 
 
